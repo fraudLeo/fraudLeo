@@ -3,7 +3,7 @@
 ### I'm glad you are here 👋
 - :computer: Focusing on Java & python
 - :hammer: Creator of applications and frameworks
-- :ram: Founder the Nothing.....
+- :ram: Founder of Nothing.....
 - 🤡: 小丑竟是我自己
 - ⛹️‍♂️: sports_boy
 - 🥉: many trophy with nothing use
