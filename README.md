@@ -7,4 +7,4 @@
 - 🤡: 小丑竟是我自己
 - ⛹️‍♂️: sports_boy
 - 🥉: many trophy with nothing use
-- 🥀: I was completed,while you have already know..
+- 🥀: 02我爱你
