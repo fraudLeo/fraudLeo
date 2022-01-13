@@ -7,4 +7,4 @@
 - 🤡: 小丑竟是我自己
 - ⛹️‍♂️: sports_boy
 - 🥉: many trophy with nothing use
-- 🥀: 02我爱你
+- 🗺️: I want to change the world!
