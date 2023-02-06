@@ -2,9 +2,9 @@
 
 ### I'm glad you are here 👋
 - :computer: Focusing on Java & play with fish
-- :hammer: Creator of applications and frameworks
+- :hammer: Creator of No applications and Not-functioning-properly frameworks
 - :ram: Founder of Nothing.....
 - 🤡: 小丑竟是我自己
-- ⛹️‍♂️: sports_boy
+- ⛹️‍♂️: sports_boy by 家里蹲
 - 🥉: many trophy with nothing use
-- 🗺️: I want to change the world!
+- 🗺️: I want to change the world only in dream!
